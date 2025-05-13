@@ -1,0 +1,2 @@
+nasılsın
+ne oldu
